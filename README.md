@@ -40,6 +40,6 @@
 ### 📫 Contato
 
 - Email: kaua_coelho@estudante.sesisenai.org.br
-- Linkedin: [em breve...]
+- Linkedin: [Kauã Henrique Coelho]
 
 ---
